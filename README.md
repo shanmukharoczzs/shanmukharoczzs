@@ -2,6 +2,8 @@
 - 👀 I’m interested in new stuff
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on git hub
+- Im new here 
+- 
 - 📫 How to reach me meessage
 
 <!---
